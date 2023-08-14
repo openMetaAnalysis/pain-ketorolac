@@ -1,4 +1,4 @@
-Among patients with acute pain who can take oral medications, does parenteral ketorolac reduce pain more or faster than oral NSAIDs
+Among patients with acute pain who can take oral medications, does parenteral ketorolac reduce pain more or faster than oral NSAIDs: Meta-analysis
 ============================================
 A living systematic review
 
